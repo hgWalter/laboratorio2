@@ -1,4 +1,4 @@
-# laboratorio2
-# laboratorio2
-# laboratorio2
-# laboratorio2
+# william callisaya maldonado
+# Walter Ruben Huanquiri Gutierrez
+# Alejandro David Sanchez Flores
+# Roly Ribaldo Mamani Tarqui
